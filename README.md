@@ -3,7 +3,7 @@
 
 ***UPDATE*** : Our summer project won award in the category "The Best Documentation" by SnT Council, IITK :clap: :clap:
 
-One of the most celebrated books to dive deep into astronomy :stars:, we members of Astronomy Club at IIT Kanpur read, discussed and analysed some of the interesting chapters, namely 14, 15 and 16 in this *2020 lockdown.*
+One of the most celebrated books to dive deep into astronomy :stars:, we members of Astronomy Club at IIT Kanpur read, discussed and analysed some of the interesting chapters, namely 14, 15 and 16 from the book and also some information from varied intresting(academia/creative content) sources, in this *2020 lockdown.*
 
 Here you can find an easy-to-understand handbook containing
 * *Chapter 14: **Clusters of Galaxies and the Expansion of the Universe***
